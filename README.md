@@ -16,4 +16,4 @@
 
 🧒 Idade: 15 Anos
 
-<div class="tenor-gif-embed" data-postid="17603629" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/anime-girl-typing-keyboard-cute-gif-17603629">GIF DO PERFIL</a>from <a href="https://tenor.com/search/anime-gifs">Anime GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<img src="./GIF_PERFIL.gif" width="500" height="auto" alt="Descrição do GIF">
