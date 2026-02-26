@@ -16,4 +16,4 @@
 
 🧒 Idade: 15 Anos
 
-![GIF DO PERFIL](https://giffiles.alphacoders.com/297/thumb-350-2970.gif)
+![GIF DO PERFIL](https://giffiles.alphacoders.com/297/thumb-350-2970.mp4)
