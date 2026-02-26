@@ -16,4 +16,4 @@
 
 🧒 Idade: 15 Anos
 
-![GIF DO PERFIL](https://tenor.com/view/anime-typing-gif-14680553)
+![GIF DO PERFIL](https://tenor.com/9Lfh.gif)
