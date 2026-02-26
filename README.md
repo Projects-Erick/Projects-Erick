@@ -16,4 +16,4 @@
 
 🧒 Idade: 15 Anos
 
-![GIF DO PERFIL](https://tenor.com/9Lfh.gif)
+![GIF DO PERFIL](https://tenor.com/pt-BR/view/anime-girl-typing-keyboard-cute-gif-17603629)
